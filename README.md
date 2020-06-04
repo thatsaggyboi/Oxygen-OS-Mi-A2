@@ -1,1 +1,1 @@
-# Oxygen-os-MI-A2
+# Oxygen-os-MI A2/6X
